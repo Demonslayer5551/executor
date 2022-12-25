@@ -1,3 +1,7 @@
-this is a free executor i worked really hard on its not a virus it has false positives im sorry about them im trying to stop the false but there hard ill make it better soon i just need sum people to download it 
+This is a paid 5$ exploit. has the best execution speeds and inject speeds has its own Api. I worked for 5 motnsh striaght to make the best executor for you guys
 
-thank you for downloading
+
+
+i Hope you enjoy
+
+Add me on Discord if the exploit is having any issues if u add me just to hate on the exploit its a block(Omen#5163)
